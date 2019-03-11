@@ -1,2 +1,0 @@
-vbhxvbjdvbdh# Reddy
-Training Purpose
